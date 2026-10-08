@@ -1,3 +1,3 @@
 # Jan Samuel Semoda
 
-Multimedialne systémy s dnešným dátumom 08.10:2026
+Multimedialne systémy 08.10.2026
